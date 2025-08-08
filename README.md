@@ -4,4 +4,11 @@ Myself Japjeet Kaur and I am from Robotics and Artificial Intelligence Branch of
 # INDUCTION-PROGRAM @ GNDEC
 # Day 1
 ## 30th July 2025
-### The first day of my college life started with devotional practice by seeking blessings from Waheguru ji. All the students went to College GURUDWARA SAHIB at 8.30 am in the morning where Granthi Singh ji did PATH of JAPJI SAHIB, after that for about 1 hour Raagi Singh did SHABAD KIRTAN which was very soothing and the whole atmosphere was peaceful. After ANAND SAHIB Granthi Singh ji did ARDAAS and also tol
+
+# Spiritual Welcome
+The first day of my college life started with devotional practice by seeking blessings from Waheguru ji. All the students went to College GURUDWARA SAHIB where Granthi Singh ji did Path of JAPJI SAHIB, Raagi Singh did SHABAD KIRTAN & Path of ANAND SAHIB, Granthi Singh ji did ARDAAS and also told the students about some valuable things we have to keep in our mind throught 4 Years Degree Course in the campus.
+The starting of the day was very soothing and whole atmosphere was quite peaceful.
+
+Dr. Harpreet Kaur Grewal(HOD - Applied Sciences).
+
+
