@@ -37,7 +37,29 @@ Here, the day ends experiencing new life.
 # Day 3
 ## 4th August 2025
 
-Another day, more motivation. The session was taken by Causmic Club in Auditorium. The team anchor, Ms. Taranpreet Kaur talked about their vision, motive.
+Another day, more motivation. 
+The session was taken by Causmic Club in Auditorium. The team anchor, Ms. Taranpreet Kaur talked about their mission and vision that is - "To learn something from everything in its physical essence; the essence, which is equally enlightening and dark."
+The team is quite active at social media platforms like Instagram, WhatsApp, Google website etc. I personally, want to join and volunteer this team, taking their vision on the top. 
+
+Our expert, Dr. Priya Darshni mam was back with her 2nd lecture on "Universal Human Values". Firstly, she took questions from students related to last lecture and explained very well. Moving on, she talked on few topics such as "Right understanding", "Process of self exploration", "Relationship", "Physical Facility", "Resolution of concerns", "Partial & Complete harmony in Self" and many more. The session was filled with great knowledge.
+
+In break time, the members of FM Community Radio Station were visiting new students and took their reviews about the induction program and college. I also gave them my reviews and they posted the videos on their Instagram page.
+
+After that we had an interactive lecture with Prof. Jaswant Singh Taur sir of Information Technology department. He asked three questions from everyone. That are:
+1) Why we have chosen specific branch?
+2) Why we have taken admission in GNDEC only?
+3) What is our purpose of choosing that specific branch and college?
+
+Some students answered him and everyone had their own reasons and thoughts.
+His words taught us the main mantra of life - "Self-Belief is the foundation of success – when you believe in yourself, anything is possible."
+
+Here we ended the day and see you in the next learning session.
+
+# Day 4
+## 5th August 2025
+
+
+
 
 
 
