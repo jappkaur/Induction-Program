@@ -32,6 +32,14 @@ After this, Dr. Arvind Dhingra took the stage. He engaged in friendly banter wit
      
 Further on, English & Maths Profienciency Tests were conducted by senior students in the Workshop Seminar Hall. 
 
+Here, the day ends experiencing new life.
+
+# Day 3
+## 4th August 2025
+
+Another day, more motivation. The session was taken by Causmic Club in Auditorium. The team anchor, Ms. Taranpreet Kaur talked about their vision, motive.
+
+
 
 
 
