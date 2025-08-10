@@ -58,6 +58,17 @@ Here we ended the day and see you in the next learning session.
 # Day 4
 ## 5th August 2025
 
+I started my day with little laziness.
+But when I reached TCC Seminar Hall where Mr. Gautam Murria, our senior came to deliver lecture on "Motor Sports" all my listlessness dissappeared because his way of interaction was quite energetic.
+
+Our last lecture was taken by expert Mrs. Shaffy Makkar on "Millets Super Food". It was a great session. Her information was very helpful and useful too. The main question was "Why should we shift our diet from cereal grain like wheat to coarse grain like millets (bajra, jawar, Raagi etc.)?"
+She started from this main question only. She informed us about prons and cons of both millets and cereal grain food. She covered each & every millet precisely. We concluded that, "Millets are generally more nutritious, gluten-free, and better for blood sugar and sustainability than wheat. However, both can be part of a healthy diet when consumed mindfully and in variety".
+At the end she also told us about various methods of cooking food & adding millets to diet. Eating by soaking millets is the best way to consume them as they provide accurate amount of fibre to our body.
+
+That brings us to the end of a beautiful college day.
+
+# Day 5
+## 6th August 2025
 
 
 
