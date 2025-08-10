@@ -70,6 +70,17 @@ That brings us to the end of a beautiful college day.
 # Day 5
 ## 6th August 2025
 
+"Every day of the program unfolded with fresh energy, offering new insights and opportunities to connect with our peers and mentors."
+
+Our first lecture was with Dr. Parminder Singh(Dean-Student Welfare) in the Auditorium. He made us aware about the whole campus. He gave information regarding the facilities given to students like internet connectivity, dispensary, canteens, tuck shop, hostels, gurudwara sahib, sports ground and many other clubs/activities and societies. His presentation & way of explaining was very nice.
+
+“The youth today are passionate about fitness, making the gym their second home.”
+Expert Mr. Manpreet Singh came to encourage the young engineers on "Fitness". Personally, I loved the session very much as I have great interest in doing gym/physical activity. What I experienced in the session was that boys students were more active & curious to know about fitness, gym, steroids, whey proteins, cardio & strength training and myths. A small competition of push-ups for boys was conducted by him at the stage. All of them were very determined while participating. Sir covered each part related to fitness training. His way of interaction deeply touched my heart.
+
+Going on, Team NCC (National Cadet Corps) took the stage. They told us about their mission and vision. Team head informed us about various camps and training sessions conducted in college or in other campuses. We got to know that NCC members are given opportunities of learning and practicing real time firing with weapons. Then, our respected Brigadier P.S Cheema sir arrived. 
+
+
+
 
 
 
